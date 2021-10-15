@@ -1,0 +1,1 @@
+//I have been lucky enough to have many travel experiences, but the two most impactful on my life was my trips to the 2012 Summer Olympics in London, and my trip to Africa where I built a school in Zanzibar, went on safari in Tanzania and climbed Mt Kilimanjaro!
